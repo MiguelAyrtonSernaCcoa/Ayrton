@@ -1,2 +1,0 @@
-# Ayrton
-nada aun
